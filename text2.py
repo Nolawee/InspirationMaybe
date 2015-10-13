@@ -1,0 +1,1 @@
+After your friend is done stalling you start to get frustrated and proceed to explore the house without her. Suddenly you hear a faint scream behind you, when you actually take a look you realize that your friend is no where to be found. Then you hear a menacing voice tell you "The only way to escape is to play a few games with me." 
